@@ -1,1 +1,1 @@
-Use the slides at: https://arielj.github.io/the-completest-guide-to-empanadas
+Use the slides at: https://arielj.github.io/months-and-days
